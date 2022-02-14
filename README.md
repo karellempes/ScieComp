@@ -1,1 +1,0 @@
-# ScieComp lees deze
